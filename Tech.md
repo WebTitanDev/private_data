@@ -33,3 +33,8 @@ https://docs.google.com/document/d/1O5CtKM1iHD82YiGs64W_Us7HxFYreCuL3YSVV5h09Qg/
 
 resume
 https://www.resume.com/
+
+https://secure.sakura.ad.jp/rscontrol/rs/webmail2/
+
+trust-dev@validcode.jp
+GameT!me
